@@ -1,2 +1,2 @@
-# cool_seagulls Aimbot
+# cool_seagulls Aimbot old version thats shit
 pretty cool and undetected aimbot for roblox
